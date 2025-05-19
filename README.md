@@ -1,4 +1,4 @@
-### Hi there 👋
+![Cùng kết nối ước mơ của bạn](https://github.com/user-attachments/assets/c36dcffb-2375-41cf-92f9-9d57cb4372ba)
 
 <!--
 **songnguxyz/songnguxyz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
